@@ -14,4 +14,4 @@ Trying to get better at building smarter systems, scaling apps, and integrating 
 
 📫 Say hi
 📬 baophamgiale@gmail.com
-🔗 LinkedIn • GitHub
+🔗 [https://www.linkedin.com/in/bao-phammm/](link)
